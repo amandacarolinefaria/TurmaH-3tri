@@ -1,4 +1,4 @@
-# TurmaH-3tri
+# TurmaH-3tri :wink:
 Pensamento Computacional - 1° ano
 
 ## Professora de Matematica e Educação Financeira. 
